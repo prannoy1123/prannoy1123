@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with Projects
 - 💬 Ask me about Data Analytics
 - 📫 How to reach me: [Instagram]
-- 😄 Pronouns: He
-- ⚡ Fun fact: 
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I
 -->
